@@ -1,0 +1,3 @@
+# Cosmopolitan UK
+
+Type: Fashion

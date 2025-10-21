@@ -1,0 +1,20 @@
+# The Weeknd
+
+Item: Doll collaboration
+Category: Items
+Sub-Category: Figure
+Images: 23_TheWeeknd_OxyGreen_ProductCarousel_1000x1000_BOX.webp, 23_TheWeeknd_OxyGreen_ProductCarousel_1000x1000_FRONT.webp
+Price: £125.00
+Year: 2023
+Collab: Suplerplastic
+Link: https://superplastic.co/Weeknd
+
+![23_TheWeeknd_Oxy_ProductCarousel_1000x1000_R34 (3).webp](The%20Weeknd%207b4c3208ce7a49fa8f962bfc3d7b2358/23_TheWeeknd_Oxy_ProductCarousel_1000x1000_R34_(3).webp)
+
+![23_TheWeeknd_OxyGreen_ProductCarousel_1000x1000_BACK.webp](The%20Weeknd%207b4c3208ce7a49fa8f962bfc3d7b2358/23_TheWeeknd_OxyGreen_ProductCarousel_1000x1000_BACK.webp)
+
+![23_TheWeeknd_OxyGreen_ProductCarousel_1000x1000_BOX.webp](The%20Weeknd%207b4c3208ce7a49fa8f962bfc3d7b2358/23_TheWeeknd_OxyGreen_ProductCarousel_1000x1000_BOX.webp)
+
+![23_TheWeeknd_OxyGreen_ProductCarousel_1000x1000_FRONT.webp](The%20Weeknd%207b4c3208ce7a49fa8f962bfc3d7b2358/23_TheWeeknd_OxyGreen_ProductCarousel_1000x1000_FRONT.webp)
+
+![23_TheWeeknd_OxyGreen_ProductCarousel_1000x1000_R34.webp](The%20Weeknd%207b4c3208ce7a49fa8f962bfc3d7b2358/23_TheWeeknd_OxyGreen_ProductCarousel_1000x1000_R34.webp)

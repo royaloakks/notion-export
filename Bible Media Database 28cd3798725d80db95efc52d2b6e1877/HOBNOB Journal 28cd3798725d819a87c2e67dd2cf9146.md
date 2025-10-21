@@ -1,0 +1,3 @@
+# HOBNOB Journal
+
+Type: Fashion

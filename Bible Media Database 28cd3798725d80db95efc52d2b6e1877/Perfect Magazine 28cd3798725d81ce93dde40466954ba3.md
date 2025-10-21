@@ -1,0 +1,3 @@
+# Perfect Magazine
+
+Type: Fashion

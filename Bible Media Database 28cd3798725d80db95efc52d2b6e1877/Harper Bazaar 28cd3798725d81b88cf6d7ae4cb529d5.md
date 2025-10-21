@@ -1,0 +1,3 @@
+# Harper Bazaar
+
+Type: Fashion

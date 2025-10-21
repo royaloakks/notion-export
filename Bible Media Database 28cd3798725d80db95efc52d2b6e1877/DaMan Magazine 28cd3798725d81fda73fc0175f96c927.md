@@ -1,0 +1,3 @@
+# DaMan Magazine
+
+Type: Fashion

@@ -1,0 +1,3 @@
+# Automation
+
+[Automation Calendar](Automation%20a76fa6b0d8ae4200bccdf8eaaf4f7c23/Automation%20Calendar%205a51171b4cd2402a8a91b7472f1e0d62.csv)

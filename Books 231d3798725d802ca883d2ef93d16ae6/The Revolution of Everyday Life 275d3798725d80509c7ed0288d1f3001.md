@@ -1,0 +1,83 @@
+# The Revolution of Everyday Life
+
+Author: Raoul Vaneigem
+Publication Date: 1967
+Year Read: 2024
+
+The desire to live is a political decision. 'Who wants a world in which the guarantee that we shall not die of starvation entails the risk of dying of boredom?
+
+The man of survival is a man ground up in the machinery of hierarchical power, caught in a net of interferences, a chaos of oppressive techniques whose ordering only awaits patient programming by programmed experts. P18
+
+What am I supposed to do in a group of militants who expect me to leave in the cloakroom - I won't say a few ideas, for my ideas would have led me to join the group - but the dreams and desires which never leave me, the wish to live authentically and without restraint? What's the use of exchanging one isolation, one monotony, one lie for another?
+Once the illusion of real change has been exposed, a mere change of illusion becomes intolerable. But present conditions are precisely these: the economy cannot stop making us consume more and more, and to consume without respite is to change illusions at an accelerating pace which gradually dissolves the spaces behind the waterfall of gadgets, family cars and paperback books. P24
+
+People without imagination are beginning to tire of the importance attached to comfort, to culture, to leisure, to all that destroys imagina-tion. This means that people are not really tired of comfort, culture and leisure, but of the use to which they are put, which is precisely what stops us enjoying them. P25
+
+The monotony of the ideological spectacle makes us aware of the passivity of life, of survival. P25
+
+People who talk about revolution and class struggle without referring explicitly to everyday life, without understanding what is subversive about love and what is positive in the refusal of constraints - such people have a corpse in their mouth. P26
+
+In the twentieth century, death terrifies men less than the absence of real life. All these dead, mechanised, specialised actions, stealing a little bit of life a thousand times a day until the mind and body are exhausted, until that death which is not the end of life but the final saturation with absence: this is what lends a dangerous charm to dreams of apocalypses, gigantic destructions, complete annihilations, cruel, clean and total deaths. Auschwitz and Hiroshima are indeed the
+'comfort of nihilism'. Let impotence in the face of suffering become a collective feeling, and the demand for suffering and death can sweep a whole community. Consciously or not, most people would rather die than live a permanently unsatisfying life. Look at peace marchers: aside from an active minority of radicals, most of them are nothing but penitents trying to exorcise their desire to disappear with all the rest of humanity. They would deny it, of course, but their miserable faces give them away. The only real joy is revolutionary. P47
+
+Perhaps it is to ensure that a universal desire to perish does not take hold of men that a whole spectacle is organised around particular suffer-ings. A sort of nationalised philanthropy impels each person to find consolation for his own infirmities in the spectacle of other people's.
+Consider disaster photographs, stories of cuckolded singers, or the grotesque dramas of the gutter press. And, at the other end of the scale, the hospitals, asylums and prisons - real museums of suffering for the use of those whose fear of going in there makes them rejoice to be on the outside. P47
+
+Every call for productivity under the conditions chosen by capitalist and Soviet economics is a call to slavery. P52
+
+Individualism, alcoholism, collectivism, activism... the variety of ideologies shows that there are a hundred ways of being on the side of Power. There is only one way to be radical. The wall that must be knocked down is immense, but it has been cracked so many times that soon a single cry will be enough to bring it crashing to the ground. Let the formidable reality of the third force emerge at last from the mists of history, with all the individual passions that have fuelled the insurrections of the past! Soon we shall find that an energy is locked up in everyday life which can move mountains and abolish distances. The long revolution is preparing to write works in the ink of action. P62/63
+
+Under the dictatorship of consumer goods, muner melts away like a snowball in hell, its significance passes to aljects wit more representational value, more tangible objects beer adapted to de spectacular ideology of creeping state socialism. Consumer gand encroach on the power of money because, wrapped in ideologs they an the true signs of power. Before long, money's only remaining justific con will be the quantity of objects and useless gadgets it emahes antm acquire and throw away at an ever-accelerating pace, ocly the quiner and the pace matter, because mass distribution automatically wiges qur quality and raricy appeal. Oaly the ability to consume faster and taster-cars, alcohol, houses, TVs and playmates - shows how far you"ve go ug the hierarchical ladder. From blue blood to the power of money, L the superiority of money to the power of the gadget, the nec plans un at Christian/socialist civilisation: a civilisation of prosaisem smd vulgar detail. A perfect nest for Nietzsche's little men'. P72
+
+Purchasing power is a licence to purchase power. The old proletarian sold his labour power in order to subsist; what little leisure time he had was passed pleasantly enough in conversation, arguments, drinking, making love, wandering, celebrating and rioting. The new proletarian sells his labour power in order to consume. When he's not flogging himself to death to get promoted in the labour hierarchy, he's being persuaded to buy himself objects to distinguish himself in the social hier-archy. The ideology of consumption becomes the consumption of ideology. East-West cultural détente is no accident. On the one hand, homo consumator buys a bottle of whiskey and gets as a free gift the lie that accompanies it. On the other hand, communist man buys ideology and gets a bottle of vodka for free. Paradoxically, Soviet and capitalist regimes are taking a common path, the first thanks to an economy of production, the second thanks to an economy of consumption. P72/73
+
+THE REFUSAL OF SACRIFICE is the refusal to be bartered. There is nothing in the world of things, exchangeable for money or not, which can be treated as equivalent to a human being. The individual is irre-ducible. He is subject to change but not to exchange. P112
+
+When people’s stop being fooled they stop doing what they are told. P121
+
+The passion for play is no longer alienating if the person who gives himself up to it seeks play in the whole of life - in love, in thought, in the construction of situations. In the same way, the wish to kill is no longer megalomania if it is combined with revolutionary consciousness. P121/122
+
+The complete unchaining of pleasure is the surest way to the revolution of everyday life, to the construction of the whole man. P122
+
+When theft needs legal justification, when authority raises the banner of the general interest while pursuing private ends with impunity, is it any wonder that the lie fascinates the minds of men, twisting them to fit its laws until their contortions come to resemble 'natural' human postures? And it is true that man lies because in a world governed by lies he cannot do otherwise: he is falsehood himself, he is trapped in his own false-hood. P123
+
+Eventually the decomposition of the spectacle entails the resort to the spectacle of decomposition. It is in the logic of things that the last actor should film his own death. As it happens, the logic of things is the logic of what can be consumed, and sold as it is consumed. Pataphysics, sub-Dada, and the mise en scène of impoverished everyday life line the road that leads us with many a twist and turn to the last graveyards. P126
+
+"We would live," says Pascal, "according to the ideas of others; we would live an imaginary life, and to this end we cultivate appearances. Yet in striving to beautify and preserve this imaginary being we neglect everything authentic.” P132
+
+Only by starving the revolutionary masses of joy can one become their master: uncontained, collective pleasure can only go from victory to victory. P150
+
+Today even the young enjoy the dubious privilege of age. In fact consumer society, which invented- the teenager as a new class of consumer, fosters premature senility: to consume is to be consumed by inauthenticity, nurturing appearance to the advantage of the spectacle and to the detriment of real life. The consumer is killed by the things he becomes attached to, because these things (commodities, roles) are dead. 
+
+Whatever you possess possesses you in return. Everything that makes you into an owner adapts you to the order of things - and makes you old. Time-which-slips-away is what fills the void created by the absence of the self. The harder you run after time, the faster time goes: this is the law of consumption. Try to stop it, and it will wear you out and age you all the more easily. Time has to be caught on the wing, in the present - but the present has yet to be constructed.
+We were born never to grow old, never to die. All we can hope for, however, is an awareness of having come too soon. And a healthy contempt for the future can at least ensure us a rich portion of life. P154/155
+
+As we know, the consumption of goods - which comes down always, in the present state of things, to the consumption of power - carries within itself the seeds of its own destruction and the conditions of its own transcendence. The consumer cannot and must not ever attain satisfaction: the logic of the consumable object demands the creation of fresh needs, yet the accumulation of such false needs exacerbates the malaise of men confined with increasing difficulty solely to the status of consumers. Furthermore, the wealth of consumer goods impoverishes authentic life. It does so in two ways. First, it replaces authentic life with things. Secondly, it makes it impossible, with the best will in the world, to become attached to these things, precisely because they have to be consumed, ie, destroyed. Whence an absence of life which is ever more frustrating, a self-devouring dissatisfaction. This need to live is ambiva-lent: it constitutes one of those points where perspective is reversed. P162
+
+Remove the qualitative and all that remains is despair. Despair comes in every variety available to a system designed for killing human beings, the system of hierarchical power: reformism, fascism, philistine apoliti-cism, mediocracy, activism and passivity, boy-scoutism and ideological masturbation. P172
+
+My creativity, no matter how poor, is for me a far better guide than all the knowledge with which my head has been crammed. In the night of Power, its glimmer keeps the enemy forces at bay. These forces are cultural conditioning, specialisation of every kind, and imposed worldviews - all irretrievably totalitarian in nature. In creativity, then, everyone possesses the ultimate weapon. But, like a talisman, this weapon has to be used wittingly. Where creativity is mobilised against the grain, in the service of lies and oppression, it turns into a sick farce: the consecration of art. Furthermore, there is a distinction between acts designed to destroy Power and acts designed to build individual free will: their form is the same but their range is different; as any good strategist knows, you prepare in different ways for defence and attack.
+We have not chosen the reversal of perspective out of some kind of voluntarism. It has chosen us. Caught up as we are in the historical state of nothing the next step can only be a change in everything.
+Consciousness of total revolution - or rather, of the necessity for it - is the only way we have left of being historical, our last chance to undo history under willed conditions. The game we are about to join is the game of our creativity. Its rules are radically opposed to those which govern our society. P188
+
+The only forms of creativity that authority can deal with, or wishes to deal with, are those which the spectacle can co-opt. But what people do officially is nothing compared with what they do in secret. People usually associate creativity with works of art, but what are works of art alongside the creative energy displayed by everyone a thousand times a day? Alongside seething unsatisfied desires, daydreams in search of a foothold in reality, feelings at once confused and luminously clear, ideas and gestures presaging nameless upheavals?
+All this energy, of course, is relegated to anonymity and deprived of adequate means of expression, imprisoned by survival and obliged to find outlets by sacrificing its qualitative richness and conforming to the spectacle's categories. Think of Cheval's palace, the Watts Towers, Fourier's inspired system, or the pictorial universe of Douanier Rousseau. Even more to the point, consider the incredible diversity of anyone's dreams - landscapes the brilliance of whose colours qualitatively surpass the finest canvases of a Van Gogh. Every individual is constantly building an ideal world within himself, even as his external motions bend to the requirements of soulless routine. P191
+
+Spontaneity is the true mode of being of individual creativity, creativity's initial, immaculate form, unpolluted at the source and as yet unthreatened by the mechanisms of co-optation. Whereas creativity in the broad sense is the most equitably distributed thing imag-inable, spontaneity seems to be confined to a chosen few. Its possession is a privilege of those whom long resistance to Power has endowed with a consciousness of their own value as individuals. In revolutionary moments this means the majority; in other periods, when the old mole works unseen, day by day, it is still more people than one might think.
+For so long as the light of creativity continues to shine spontaneity has a chance. P194
+
+The traveller who is always thinking about the length of the road before him tires more easily than his companion who lets his imagination wander as he goes along. Similarly, anxious attention paid to lived experience can only impede it, abstract it, and make it into nothing more than a series of memories-to-be. P196
+
+Is not the revolutionary moment a fountain of eternal youth? P229
+
+"All time resides in the moment", according to the Esoteric tradition.
+Passed through history's developing tray, a statement in the Pistis Sophia _ "One day of light is a thousand years in the history of the world" - translates word for word into Lenin's assertion that there are days of revolution that are worth centuries. P235
+
+Creativity, love and play are to life what the needs for nourishment and shelter are to survival (1). The project of self-realisation is grounded in the passion to create (2); the project of communication is grounded in the passion of love (4); the project of participation is grounded in the passion for play (6). Wherever these three projects are separated, Power's repressive unity is reinforced. Radical subjectivity is the pressure - discernible in practically everyone at the present time - of an indivisible will to build a passion-filled life (3). The erotic is the spontaneous coherence which gives practical unity to attempts to enrich lived experience. P236
+
+By throwing the whole of everyday life onto 'the battlefield of production and consumption, capitalism crushes the urge to play while at the same time trying to harness it as a source of profit. So, over the last few decades, we have seen the attraction of the unknown turned into mass tourism, adventure turned into scientific expeditions, the great game of war turned into operational strategy, and the taste for change turned into mere changes in taste. P257
+
+The strength of revolutionary armies lies in their creativity.
+Frequently, the first days of an insurrection are a walk-over simply because nobody pays the slightest attention to the enemy's rules: because a new game is invented and because everyone takes part in its elabora-tion. But if this creativity flags, if it becomes repetitive, if the revolutionary army becomes a regular army, then blind devotion and hysteria try in vain to make up for military weakness. Infatuation with past victories breeds terrible defeats. P261
+
+In short, subversion is the basic expression of creativity. Daydreaming subverts the world. Sometimes subversion is like Monsieur Jourdain speaking prose; sometimes it is more like James Joyce writing Ulysses. P264

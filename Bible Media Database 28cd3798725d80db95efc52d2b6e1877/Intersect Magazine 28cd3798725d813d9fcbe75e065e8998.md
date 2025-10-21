@@ -1,0 +1,3 @@
+# Intersect Magazine
+
+Media: Online

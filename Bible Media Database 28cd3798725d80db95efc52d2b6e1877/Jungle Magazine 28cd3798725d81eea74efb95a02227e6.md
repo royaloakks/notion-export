@@ -1,0 +1,3 @@
+# Jungle Magazine
+
+Type: Fashion

@@ -1,0 +1,9 @@
+# slowthai
+
+Description: Budweiser parody for music vid
+Category: Parody, Video
+Platform / Medium: Video
+Digi / IRL: Digital
+Year: 2021
+Attachment: Screenshot_2023-10-31_at_15.57.50%201.png, Screenshot_2023-10-31_at_15.57.31.png, Screenshot_2023-10-31_at_15.56.38.png
+Link: https://www.youtube.com/watch?v=7bDtD6bowww

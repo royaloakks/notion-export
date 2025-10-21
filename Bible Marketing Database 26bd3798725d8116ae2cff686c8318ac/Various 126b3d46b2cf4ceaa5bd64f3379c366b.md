@@ -1,0 +1,6 @@
+# Various
+
+Description: Blood Records collaboration 
+Category: Album, Vinyl
+Platform / Medium: Vinyl
+Digi / IRL: IRL

@@ -1,0 +1,3 @@
+# Also Journal
+
+Type: Fashion

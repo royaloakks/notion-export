@@ -1,0 +1,3 @@
+# Super Magazine
+
+Type: Fashion

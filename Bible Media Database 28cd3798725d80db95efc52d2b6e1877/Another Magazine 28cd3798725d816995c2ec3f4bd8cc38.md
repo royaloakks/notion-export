@@ -1,0 +1,3 @@
+# Another Magazine
+
+Type: Fashion

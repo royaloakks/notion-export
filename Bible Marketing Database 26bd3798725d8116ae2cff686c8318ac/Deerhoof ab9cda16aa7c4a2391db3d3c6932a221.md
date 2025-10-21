@@ -1,0 +1,9 @@
+# Deerhoof
+
+Description: Session performance at CERN / Large Hadron Collider
+Category: Session
+Platform / Medium: YouTube
+Digi / IRL: Digital
+Year: 2015
+Attachment: 330265055_6125290907514767_1066935307943709716_n%201.jpg, 330242792_171037828977655_8368121128608794175_n.jpg, 330087074_200975789259392_396208562850923853_n.jpg
+Link: https://pitchfork.com/news/61265-deerhoof-perform-at-the-large-hadron-collider/

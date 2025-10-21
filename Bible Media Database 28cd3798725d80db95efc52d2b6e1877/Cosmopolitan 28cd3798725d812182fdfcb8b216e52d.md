@@ -1,0 +1,3 @@
+# Cosmopolitan
+
+Type: Fashion

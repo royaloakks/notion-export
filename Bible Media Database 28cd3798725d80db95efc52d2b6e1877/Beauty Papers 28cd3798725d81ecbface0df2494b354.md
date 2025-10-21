@@ -1,0 +1,3 @@
+# Beauty Papers
+
+Type: Fashion

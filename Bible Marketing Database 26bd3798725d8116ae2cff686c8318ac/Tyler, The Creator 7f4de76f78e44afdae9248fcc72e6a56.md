@@ -1,0 +1,8 @@
+# Tyler, The Creator
+
+Description: IGOR character for album
+Category: Album, Character
+Platform / Medium: Person
+Digi / IRL: IRL
+Year: 2019
+Attachment: 292353645_759379125213354_8868627760703491314_n%201.jpg, 292628973_508416034390909_7187948529464807113_n.jpg, 292423152_358267323047160_8852683795832586650_n.jpg

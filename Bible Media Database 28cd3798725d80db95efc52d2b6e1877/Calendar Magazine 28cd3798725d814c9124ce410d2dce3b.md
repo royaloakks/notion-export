@@ -1,0 +1,3 @@
+# Calendar Magazine
+
+Type: Fashion

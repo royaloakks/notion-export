@@ -1,0 +1,3 @@
+# Vogue International
+
+Type: Fashion

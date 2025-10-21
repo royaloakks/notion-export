@@ -1,0 +1,51 @@
+# Writing
+
+- **This One’s For You**
+- Music discovery via BMX videos (some Skate)
+    - BMX Movie Database
+    - The ability for a song to drive adrenalin – why does music have this effect on us?
+    - The song’s association with a particular BMX rider
+    - The use of old and new songs, likely picked by the riders
+    - White Zombie being suggested for me on NSF 1 (homage to S&M Inferno)
+    - Metallica in Chris / Gatchy’s Beetle coming back from a skatepark… and subsequently me buying the S&M album
+    - Songs of particular importance / memory
+        - Shaun Butler, Mike Ocoboc - DEVO ‘Gates of Steel’ (S&M Inferno)
+        - Dave Young - Slayer ‘Reign in Blood’ & The Cramps ‘New Kind of Kick)
+        - Taj Mihelich - Black Sabbath ‘Embryo’ & Children of the Grave’
+        - Chad Muska - intro beat (Muska’s own) & Buena Vista Social Club ‘Chan Chan’ (Shorty’s Fulfil The Dream)
+        - Ralph Sinisi - Boulevard Connect ‘Copenhagen Claimin’’ (Props issue ?)
+        - Props end credits, maybe Road Fools - Elliot Smith ‘Rose Parade’
+- Music discovery via relationships
+- Music discovery via peer pressure
+- Music discovery via parents / siblings
+    - Repeat listening in the car
+    - Being handed a cassette of Phil Collins (not original of course, recorded to a colourful TDK “home taping is killing the music industry”, kids)
+    - Watching Eric Clapton / Dire Straits VHS on Thursday nights with dad, with the occasional allowance made for Benjamin who wanted to watch Tomorrow’s World
+    - indulging my own children in the repeat listening of songs (C.R.E.A.M, Sabotage, Never Come Back, I Don’t Like Here Anymore, Late Night Feelings, Waterfall, Feel Good, Doom’s Night (Timo Mass Remix), Roar and Firework,  to counteract the limitless of choice
+- Music self-discovery
+- Going on tour, playing in a prison
+- Friends and their music discovery - not as such where and how but what it means to be driven to discover music. Why keep discovering, does it slow down?
+- The CD player not being suitable for riding a BMX, we could have told you the decline of CDs would happen because of the unsuitability to do anything of any rigorous movement without it skipping. We favours the song Walkman or a Minidisc for a hot minute
+- Discovery of music in your first car
+- Nostalgia as a chapter, the imprint we’ve been leaving (closing chapter), the push pull as a desire to want to keep new music discovery but loving the familiarity of the old but also nostalgia AS a new music driver (Lana Video Games, Pinkpantheress, Disclosure). Maybe these artists will live long enough careers to see themselves become the product of nostalgic influence
+- Misheard lyrics
+    - Lyrics vs melody
+- Music is something we do when doing something else - but that’s not to be seen as a bad thing - it’s a background, a literal soundtrack, one that draws a map back to a moment in time
+    - Illustrated in the streaming era and observations of where, when and how people consume. Terrible named playlists such as ‘contemporary blend’ adorned with autumnal coffee cup. Where are the more appropriate ’heart being clawed out’, ‘you’ll never love again’
+- Record store
+    - Dire Straits, Clapton all on Sat mornings
+- Documentaries: Dogtown and Z Boys & Riding Giants. Stacey Peralta
+
+---
+
+- The grind of live shows and touring and breaking the myth of effortless achievement in music
+- The Walkmen U.K. tour
+- Travis Scott at SXSW
+- Henry Rollins ‘Get In The Van’
+- Get in the Van - having played 93 shows in 105 days (1985), fights, police, pain, drugs, self-loathing, lack of sleep
+- Touring life - it’s toll on mental health, coming off the road and back to reality / ‘normal life’
+- Interview agents and promoters
+- Anecdotes of live shows and touring: removing the glamour, showing the hard word, dispelling the myths and what really goes into making it a success
+- How do you keep going? Do you ever think it’s not worth it?
+- showing the underdog, a rags to riches story always resonates as it shows what’s possible. If they can do it, so can I
+-

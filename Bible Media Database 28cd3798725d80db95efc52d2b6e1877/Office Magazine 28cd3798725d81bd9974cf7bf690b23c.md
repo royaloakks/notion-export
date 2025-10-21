@@ -1,0 +1,3 @@
+# Office Magazine
+
+Type: Fashion

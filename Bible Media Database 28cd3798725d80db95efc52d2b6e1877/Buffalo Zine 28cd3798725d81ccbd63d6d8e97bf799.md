@@ -1,0 +1,3 @@
+# Buffalo Zine
+
+Type: Fashion

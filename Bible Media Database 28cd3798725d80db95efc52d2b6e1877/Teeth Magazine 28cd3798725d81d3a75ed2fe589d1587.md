@@ -1,0 +1,3 @@
+# Teeth Magazine
+
+Type: Fashion

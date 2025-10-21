@@ -1,0 +1,3 @@
+# Alvar Magazine
+
+Type: Fashion

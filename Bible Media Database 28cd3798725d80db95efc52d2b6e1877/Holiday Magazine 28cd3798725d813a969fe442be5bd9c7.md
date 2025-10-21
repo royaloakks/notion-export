@@ -1,0 +1,3 @@
+# Holiday Magazine
+
+Type: Fashion

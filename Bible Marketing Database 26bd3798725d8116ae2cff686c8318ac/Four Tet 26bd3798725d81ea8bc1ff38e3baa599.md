@@ -1,0 +1,11 @@
+# Four Tet
+
+Description: 155 hour Spotify playlist
+Category: Playlist, Streaming
+Platform / Medium: Spotify
+Digi / IRL: Digital
+Type: Artist
+Approach: Ideas
+Year: 2022
+Attachment: Screenshot_2023-10-16_at_12.14.17.png
+Link: https://pitchfork.com/thepitch/four-tet-on-his-155-hour-spotify-playlist-the-coolest-thing-on-streaming/

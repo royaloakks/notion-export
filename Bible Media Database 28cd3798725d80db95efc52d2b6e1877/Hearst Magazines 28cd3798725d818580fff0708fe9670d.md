@@ -1,0 +1,3 @@
+# Hearst Magazines
+
+Type: Fashion

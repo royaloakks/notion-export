@@ -1,0 +1,3 @@
+# Magnetic Magazine
+
+Type: Music

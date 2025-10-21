@@ -1,0 +1,3 @@
+# THEINDUSTRY.FASHION
+
+Type: Fashion

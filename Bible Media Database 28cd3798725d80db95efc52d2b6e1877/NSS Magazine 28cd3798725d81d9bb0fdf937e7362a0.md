@@ -1,0 +1,3 @@
+# NSS Magazine
+
+Type: Fashion

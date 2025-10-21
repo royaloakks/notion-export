@@ -1,0 +1,8 @@
+# Vampire Weekend
+
+Description: All day album release show
+Category: Album, Live
+Platform / Medium: Venue
+Digi / IRL: IRL
+Year: 2019
+Link: https://pitchfork.com/news/vampire-weekend-to-provide-bagels-pizza-3-live-sets-at-nyc-album-release-concert/

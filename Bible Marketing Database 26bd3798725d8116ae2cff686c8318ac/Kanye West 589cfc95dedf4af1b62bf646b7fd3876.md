@@ -1,0 +1,8 @@
+# Kanye West
+
+Description: BRITs performance with UK rap artists
+Category: Live
+Platform / Medium: Award Show
+Digi / IRL: IRL
+Year: 2015
+Attachment: 325182427_473778254918525_9054552902473741856_n%201.jpg, 325597657_600211761942297_6588445009232531507_n.jpg, 325596314_1223611818226719_3052535843737393901_n.jpg

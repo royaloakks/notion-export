@@ -1,0 +1,3 @@
+# RUDE Magazine
+
+Type: Fashion

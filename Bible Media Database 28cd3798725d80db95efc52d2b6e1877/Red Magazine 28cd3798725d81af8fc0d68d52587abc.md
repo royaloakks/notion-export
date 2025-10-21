@@ -1,0 +1,3 @@
+# Red Magazine
+
+Type: Fashion

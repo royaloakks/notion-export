@@ -1,0 +1,5 @@
+# Spring Bank Holiday (UK)
+
+Date: May 25, 2026
+Days To Go: 216
+Type: Key Holiday

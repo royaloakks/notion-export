@@ -1,0 +1,3 @@
+# Snack Magazine
+
+Type: Regional

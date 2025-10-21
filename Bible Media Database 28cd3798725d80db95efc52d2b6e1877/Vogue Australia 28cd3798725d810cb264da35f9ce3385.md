@@ -1,0 +1,3 @@
+# Vogue Australia
+
+Type: Fashion

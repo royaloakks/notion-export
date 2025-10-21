@@ -1,0 +1,3 @@
+# Departures Magazine
+
+Type: Fashion

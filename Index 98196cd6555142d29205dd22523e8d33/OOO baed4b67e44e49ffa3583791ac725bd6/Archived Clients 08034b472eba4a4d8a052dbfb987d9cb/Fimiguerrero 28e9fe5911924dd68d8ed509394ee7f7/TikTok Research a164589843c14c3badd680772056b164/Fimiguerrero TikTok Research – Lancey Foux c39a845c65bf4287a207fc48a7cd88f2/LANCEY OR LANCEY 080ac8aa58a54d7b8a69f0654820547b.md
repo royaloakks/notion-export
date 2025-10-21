@@ -1,0 +1,6 @@
+# LANCEY OR LANCEY
+
+Spotify: 22,011,173
+Date: 10/28/2022
+TikTok Creates: 891,700
+YouTube: 3,300,000

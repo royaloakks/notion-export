@@ -1,0 +1,3 @@
+# Vogue France
+
+Type: Fashion

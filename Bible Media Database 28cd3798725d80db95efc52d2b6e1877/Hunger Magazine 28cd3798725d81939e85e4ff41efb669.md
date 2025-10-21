@@ -1,0 +1,3 @@
+# Hunger Magazine
+
+Type: Fashion

@@ -1,0 +1,3 @@
+# MARFA JOURNAL
+
+Type: Fashion

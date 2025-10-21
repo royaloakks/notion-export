@@ -1,0 +1,3 @@
+# Fortitude Magazine
+
+Type: Music

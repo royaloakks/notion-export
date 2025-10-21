@@ -1,0 +1,3 @@
+# Hello! Magazine
+
+Type: Fashion

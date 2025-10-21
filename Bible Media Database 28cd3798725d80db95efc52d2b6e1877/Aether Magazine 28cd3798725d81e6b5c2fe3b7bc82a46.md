@@ -1,0 +1,3 @@
+# Aether Magazine
+
+Type: Fashion
